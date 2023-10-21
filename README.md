@@ -1,2 +1,2 @@
-# hoja-de-vida-mirian
+# Diseno-digital-mirian
 Hoja de vida Mirian Vasquez
